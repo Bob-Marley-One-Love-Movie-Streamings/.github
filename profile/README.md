@@ -1,4 +1,4 @@
-<h1>[.WATCH.]full— "Bob Marley: One Love" (2024) FullMovie Online On Streamings</h1>
+<h1>[.WATCH.]full— "Bob Marley: One Love" [2024] FullMovie Online On Streamings</h1>
 
 07 minutes ago — [アニプレックス] While several avenues exist to view the highly praised film Bob Marley: One Love online streaming.
 
